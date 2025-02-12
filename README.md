@@ -1,8 +1,3 @@
-
-# Eco-Fit🌱
-
-ECO-FIT🌱 : Your Fitness Journey, Eco-Consciously ! ✅♻️
-
 # Eco-Fit 🌱
 
 ECO-FIT 🌱: Your Fitness Journey, Eco-Consciously !✅
